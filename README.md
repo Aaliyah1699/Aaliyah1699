@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Aaliyah1699
-- 👀 I’m interested in different things all the time.
+- 👀 I’m interested in new things all the time.
 - 🌱 I’m currently learning how to code.
 - 💞️ I’m looking to get better at coding.
 - 📫 How to reach me Linkedin Aaliyah Montgomery
